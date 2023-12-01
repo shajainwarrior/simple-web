@@ -1,2 +1,2 @@
 # simple-web
-hey i am tour friend
+hey i am our friend. 
